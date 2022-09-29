@@ -8,10 +8,9 @@ My parental misguidance story is not published yet.
 1. When I settle down maritally 
 2. After my “Party Rice” Album drops 
 3. When i own my first million Naira
-4. 
-*in no other*
+*in no other.*
 
-*Feel free to follow and connect till when criteria is met*
+*Feel free to follow and connect till when criteria is met.*
 
 [YouTube](https://www.youtube.com/channel/UCNTJ0XioxmsKGRnaGLQIVpw)
 

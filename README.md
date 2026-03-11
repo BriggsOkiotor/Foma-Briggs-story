@@ -34,7 +34,7 @@ Until these pillars are standing, the story remains in the music.
 
 [Gmail](okiotorbriggs@gmail.com)
 
-[Back to songs](https://briggsokiotor.github.io/Foma-Briggs-songs/)
+[Back to base](https://msha.ke/fomabriggs)
 
 ♥️ ONE LOVE ♥️ 
 

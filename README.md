@@ -24,17 +24,17 @@ I am not ready to release the full details of this journey yet. The "Parental Mi
 Until these pillars are standing, the story remains in the music.
 
 
-*Feel free to follow and connect with @fomabriggs till criteria is met, before my story goes live.*
+### Feel free to connect
+[YouTube channel ](https://youtube.com/channel/UCOcjfkZBQY7EZY64m7kDUkA)
 
-[YouTube](https://www.youtube.com/channel/UCNTJ0XioxmsKGRnaGLQIVpw)
-
-[Twitter](https://x.com/fomabriggs) 
+[Twitter](https://x.com/fomabriggs)
 
 [Instagram](https://www.instagram.com/fomabriggs?igsh=OHFoaWp6b3QyNHY2)
 
-[Gmail](okiotorbriggs@gmail.com)
 
-[Back to base](https://msha.ke/fomabriggs)
+♥️ LET LOVE LEAD ♥️
 
-♥️ ONE LOVE ♥️ 
+Foma Briggs.
+Originator, Afro925™ Movement
+
 

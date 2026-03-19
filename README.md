@@ -2,13 +2,13 @@
 ### Sorry, story pending 3 criteria (below) to go live...
 
 ## Why My Story Matters (The 70% Rule)
-My story is the silent fuel behind 70% of my music. It is a raw archive of delay, addiction, systemic limitation, and the kind of pain that leaves a man in tears. But it is also a record of Divine Faithfulness. It is the reason I can dance and jubilate in the middle of a storm. Because I know who holds the rhythm.
+My story is the silent fuel behind 70% of [my music](https://briggsokiotor.github.io/Foma-Briggs-songs/) It is a raw archive of delay, addiction, systemic limitation, and the kind of pain that leaves a man in tears. But it is also a record of Divine Faithfulness.
 
 *Have you ever been to a worship center and each time you do it seems like every prayer point coming from the altar is actually directed towards you. Has a anyone ever told you to your face " Until your life turns around for good i have no business with your spiritual congregation (church) or any you recommend "?*
 
 >This is just so you understand my struggles. 
 
-I am documenting this journey so that my children’s children never have to guess. They will be guided by my transparency. Whether you find my story inspiring or simply relatable, it is the truth behind the Afro925™ Pulse.
+I am documenting this journey so that my children’s children never have to guess. They will be guided by my transparency. Whether you find my story inspiring or simply relatable, it is the truth behind the Afro925™ Pulse. [Support & Join us Today](https://paystack.shop/pay/support_afro925er-fomabriggs)
 
 *Story goes live on three criteria*
 
